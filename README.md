@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @neildeadman
 - 👀 I’m interested in Technology, Music, Sports, Fitness
-- 🌱 I’m currently learning Gàidhlig
+- 🌱 I’m currently learning French and Gàidhlig
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
